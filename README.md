@@ -17,3 +17,5 @@ E é isto. Divirta-se formando um harém de garotas demônio e caso veja qualque
 Caso tenha algum outro jogo que quer uma tradução, me avisa e eu vejo o que posso fazer.
 
 Discord: Angelis#5309
+
+P.S. se for me mandar um erro da tradução, mande print da cena em que o texto errado aparece, valeu 
